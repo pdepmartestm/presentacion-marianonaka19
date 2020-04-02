@@ -11,5 +11,3 @@ Tengo como hobbies: Mirar y jugar al fútbol, ​​escuchar música y tomar mat
 Si bien el año no comenzó de la mejor manera, espero que todos tengamos un buen 2020.
 
 Por último les dejo una foto mía:
-
-(https://raw.githubusercontent.com/pdepmartestm/presentacion-marianonaka19/master/IMG-20190117-WA0084.jpg)
