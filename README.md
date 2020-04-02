@@ -12,4 +12,4 @@ Si bien el año no comenzó de la mejor manera, espero que todos tengamos un bue
 
 Por último les dejo una foto mía:
 
-
+(https://raw.githubusercontent.com/pdepmartestm/presentacion-marianonaka19/master/IMG-20190117-WA0084.jpg)
